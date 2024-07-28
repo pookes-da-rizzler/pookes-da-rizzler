@@ -5,6 +5,7 @@
 - 📫 How to reach me - Discord (pookie.da.rizzler)
 - 😄 Pronouns - Ni/gger
 - ⚡ Fun fact: Im 6'1 90kg (jacked 😘)
+- I made a sick antivirus but i lost it :(
 
 <!---
 pookes-da-rizzler/pookes-da-rizzler is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
